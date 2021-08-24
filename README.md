@@ -6,3 +6,4 @@
 - Mi color favorito es el naranja :orange_circle: 
 
 Estuve de viaje las primeras semanas del cuatri, por eso no nos conocemos aún, pero espero que lo podamos hacer pronto. Les dejo una foto de mi viaje intentando avistar ballenas :whale: 
+![Yo](FHD1567.JPG)
